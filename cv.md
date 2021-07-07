@@ -25,7 +25,7 @@ Experienced Quality Assurance Specialist with a demonstrated history of working 
 
 ## English:
 ---
-**British Council Georgia-**Upper-intermediate English Course
+**British Council Georgia-** Upper-intermediate English Course
 
 ## Work experience:
 ---
